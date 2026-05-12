@@ -1,4 +1,4 @@
-#  
+#  jujutsu shenanigans Scripts smart offers the most advanced jujutsu shenanigans Script, with auto-farm and auto-sell. Perfect for dominating any match.
 
 
 
